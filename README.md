@@ -1,0 +1,1 @@
+En este proyecto trabajé en conjunto con Jonathan Araos.
